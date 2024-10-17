@@ -1,2 +1,1 @@
-Informatics. Ввод-вывод:
-1)
+AMANBAEV DIDAR
